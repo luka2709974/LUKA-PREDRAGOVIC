@@ -1,0 +1,1 @@
+Imam puno neformalnog radnog iskustva u servisiranju racunara i pruzanju tehnicke podrske za prijatelje i poznanike - vise od 10 godina, jer se racunarima bavim od ranog detinjstva, a zavrsio sam i kurs za Sistem Administratora Windows Server 2012R2, tako da mogu da radim kao SISTEM ADMINISTRATOR, TEHNICKA PODRSKA, SERVISER RACUNARA.
